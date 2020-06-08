@@ -4,7 +4,9 @@ Ok, focus, Jennifer!
 Why did I have to forget my jacket at home? Not only am I making very bad
 choices in my life, I’m forgetful as hell, which isn’t helping me at the moment. A ruthlessly frigid gust of wind hits me. I’m beginning to believe I’m going
 to die of hypothermia out here. Unless I die of shame -irst. I’d say the odds are roughly 50/50. “Why, hello there, Mr, Cunningham,” I mutter, my voice shuddering. “Oh, my! You are such a sexy thing, aren’t you? I’m Jennifer, and this lovely evening, it’s my pleasure to be your date.” Ugh!
+
 ![Branching](scaas.jpg)
+
 This is beyond ludicrous. But If I want to keep my job, I better follow orders or else… And those are
 the precise words I was told to recite by Gary, my new Escorts and Lovers
 boss, when I meet my very -irst client. Now if I could just say them with
